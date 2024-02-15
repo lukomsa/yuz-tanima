@@ -1,1 +1,1 @@
-# Y-z-tan-ma
+# Yüz-tanima
